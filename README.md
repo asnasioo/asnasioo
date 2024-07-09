@@ -1,0 +1,5 @@
+- 👋 Witaj Jestem AsNasioo
+- 👀 jestem Developa Floopa W Fivem'ie
+- 🌱 Aktualnie UCze Sie Pisac Skrypty
+- 📫 Mozesz Mi Pomoc Dawajac Fajne Pomysly
+- ⚡ Fun fact: Ucze Sie Developerki Juz 2 lata XD
